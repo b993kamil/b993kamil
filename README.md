@@ -1,0 +1,7 @@
+- 👋 Hi, I’m b993kamil
+- 👀 I’m interested in crytpo
+- 🌱 I’m currently learning maching learing
+- 💞️ I’m looking to collaborate on SEO
+- 📫 How to reach me text on github
+- 😄 Pronouns: whats uppp nyga
+- ⚡ Fun fact: i like cat
